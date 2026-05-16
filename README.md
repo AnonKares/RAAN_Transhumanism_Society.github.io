@@ -9,7 +9,8 @@ The higher you are in the society, the more moderation power you have, although 
 No single transhumanist will hold total power or a large amount of power, with every members of the society holding eachother accountable for their actions 
 
 
-Currently the society is used for only knowledge sharing but, in the future, it's expected to have its own de-fi widely accepted form of currency in crypto and a de-fi irl physical currency, offer members homeless shelters, have a manufacturing place and a shop
+Currently the society is used for only knowledge sharing but, in the future, it's expected to have its own de-fi widely accepted form of currency in crypto and a de-fi irl physical currency, offer members homeless shelters, have a manufacturing place and a shop, offer more on demand training, jobs and education, have its own raan associated agricultural farmers and farms
+
 --------------------------------------------------------------
 
 # RAAN_Transhumanism_Society active Projects homepage 
