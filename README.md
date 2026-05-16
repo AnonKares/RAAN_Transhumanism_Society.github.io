@@ -3,6 +3,7 @@
 This society page, stoat and element/matrix group chat will be owned by cranimated arts in the future. 
 
 Cranimated Arts will be owned by the society members, meaning members will get to see the emails, with prominent knowledge dumpers being the pseudo leaders of the society
+
 --------------------------------------------------------------
 
 RAAN_Transhumanism_Society active Projects homepage 
