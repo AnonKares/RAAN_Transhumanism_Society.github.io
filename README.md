@@ -5,6 +5,7 @@
 
 main goal: unite humanity under 1 race which is transhuamnism with prosperity & peace
 
+only use raan transhuamnism socials for sharing STEM, transhuamnism politics & knowledge or discussion. please go elsewhere for other human things like human politics, entertainment, 
 
 every raan biohacker must look different, as the alternative is to look the same. all ideologies are accepted. ultra conservative transhumanists are accepted as long as they dont have any of the below ideologies.
 
