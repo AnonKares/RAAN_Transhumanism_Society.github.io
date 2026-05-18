@@ -3,6 +3,8 @@
 
 ## RAAN_Transhumanism_Society  
 
+msin actively worked on projects by higher ups and bots will be viewable on the code file section( this homepage files section)
+
 only knowledge dump on the discussions channel
 
 only society members can view the knowledge dumps
