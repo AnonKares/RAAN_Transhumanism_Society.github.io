@@ -20,7 +20,7 @@ do your own research and study before belieiving a society member's knowledge du
 
 every transhumanist society member must hold eachother accountable and whistleblow (anonymously or publicly) any concerns regarding members, higher ups or the bots  
 
-current society members that have access to this board ( please list your name below):
+current society members that have access to Cranimated Arts( please list your name below):
 - anon kares
 
 --------------------------------------------------------------
