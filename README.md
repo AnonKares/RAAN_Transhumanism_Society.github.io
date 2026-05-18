@@ -1,9 +1,13 @@
 # **Pesudo Society leader(s) main pinned announcement board**
 
+##  if you have access to this board & are a current prominent society knowledge dumper then please list your name below
+- Anon Kares
+
+
 **It's recommended that you don't use any real personal details like your name when creating a github account**
 --------------------------------------------------------------
 
-# RAAN_Transhumanism_Society  
+## RAAN_Transhumanism_Society  
 
 view this online page as a public physical area like a park or a cafe and the discussions channel where members meet up in the place and share knowledge
 
