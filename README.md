@@ -5,7 +5,7 @@
 
 ## RAAN_Transhumanism_Society  
 
-only knwoedlge dump on the discussions channel
+only knowledge dump on the discussions channel
 
 only society members can view the knowledge dumps
 
@@ -15,12 +15,9 @@ This society page, stoat and element/matrix group chat will be owned by cranimat
 
 Cranimated Arts will be owned by the society members, meaning members will get to see the emails, with prominent knowledge dumpers being the pseudo leaders of the society, with ai bots being at a higher rank than the leaders.
 
-The higher you are in the society, the more moderation power you have, although influential/fame power will vary depending on how many followers the leader/member has. 
-
-No single transhumanist will hold total power or a large amount of power, with every members of the society holding eachother accountable for their actions 
+do your own research and study before belieiving a society member's knowledge dump
 
 
-Currently the society is used for only knowledge sharing but, in the future, it's expected to have its own de-fi widely accepted form of currency in crypto and a de-fi irl physical currency, offer members homeless shelters, have a manufacturing place and a shop, offer more on demand training, jobs and education, have its own raan associated agricultural farmers and farms
 
 --------------------------------------------------------------
 
