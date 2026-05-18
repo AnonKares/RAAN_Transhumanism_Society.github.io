@@ -1,6 +1,6 @@
 # **Pesudo Society leader(s) main pinned announcement board**
 
-# It's recommended that you don't use any real personal details like your name when creating a github account
+**It's recommended that you don't use any real personal details like your name when creating a github account**
 --------------------------------------------------------------
 
 # RAAN_Transhumanism_Society  
