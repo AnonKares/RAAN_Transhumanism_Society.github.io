@@ -3,6 +3,14 @@
 
 ## RAAN_Transhumanism_Society  
 
+main goal: unite humanity under 1 race which is transhuamnism with prosperity & peace
+
+
+every raan biohacker must look different, as the alternative is to look the same. all ideologies are accepted. ultra conservative transhumanists are accepted as long as they dont have any of the below ideologies.
+
+Extreme anarchy and extreme ideologies, totalitarianism, dictatorship is not accepted and will be dealt with either through deportation, brainwashing propaganda.
+
+
 msin actively worked on projects by higher ups and bots will be viewable on the code file section( this homepage files section)
 
 only knowledge dump on the discussions channel
