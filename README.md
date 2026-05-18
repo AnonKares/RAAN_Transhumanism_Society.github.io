@@ -40,3 +40,9 @@ To get collaboration access and to add your own knowledge dumps go to here (the 
 --------------------------------------------------------------
 
 # raan charity & mental health support
+--------------------------------------------------------------
+# raan homeless shelters
+
+--------------------------------------------------------------
+
+# raan osr surigcal labs
