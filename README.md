@@ -57,3 +57,8 @@ To get collaboration access and to add your own knowledge dumps go to here (the 
 --------------------------------------------------------------
 
 # raan osr surigcal labs
+--------------------------------------------------------------
+# RAAN on demand paid work tasks (for members and non members)
+(payments can be in crypto and real fiat currency & non members are paid significantly less than members)
+--------------------------------------------------------------
+# RAAN on demand volunteering work
