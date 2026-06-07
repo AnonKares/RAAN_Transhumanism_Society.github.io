@@ -11,6 +11,7 @@ every raan biohacker must look different, as the alternative is to look the same
 
 Extreme anarchy and extreme ideologies, totalitarianism, dictatorship is not accepted and will be dealt with either through deportation, brainwashing propaganda.
 
+This society is meant to represent a parallel society which co-exists alongside the normal human society, whilst providing support for all society members and aiding only democratic and liberal governments & parties around the world by assisting in education, mining, manufacturing, research, construction, engineering for their country.
 
 msin actively worked on projects by higher ups and bots will be viewable on the code file section( this homepage files section)
 
