@@ -1,4 +1,6 @@
 **It's recommended that you don't use any real personal details like your name when creating a github account**
+
+To access the website click this link and follow the instruction from the index.html repostitory https://github.com/AnonKares/RAAN_Transhumanism_Society.github.io/blob/main/index.html
 --------------------------------------------------------------
 
 ## RAAN_Transhumanism_Society  
