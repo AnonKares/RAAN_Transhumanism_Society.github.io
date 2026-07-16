@@ -3,7 +3,10 @@
 To access the website click this link and follow the instruction from the index.html repostitory 
 https://github.com/AnonKares/RAAN_Transhumanism_Society.github.io/blob/main/index.html
 
-# The B.L.U.E Road Open Source template can be found in 
+# The B.L.U.E Road Open Source template can be found in https://github.com/AnonKares/RAAN_Transhumanism_Society.github.io/blob/main/index.html
+
+This open source github repository and website is for the output of basic free knowledge for raan society members and non members. 
+For the official pseudo website (which will have a private repository, check here: )
 --------------------------------------------------------------
 
 ## RAAN_Transhumanism_Society  
