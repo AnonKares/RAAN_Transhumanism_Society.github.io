@@ -3,7 +3,7 @@
 To access the website click this link and follow the instruction from the index.html repostitory 
 https://github.com/AnonKares/RAAN_Transhumanism_Society.github.io/blob/main/index.html
 
-# The raan website and main operation will be moving to bitbucket and gitlab, although this will remain a site for knowledge dumping and will host the raan blue website, i will leave the link of the new socials
+# The B.L.U.E Road Open Source template can be found in 
 --------------------------------------------------------------
 
 ## RAAN_Transhumanism_Society  
